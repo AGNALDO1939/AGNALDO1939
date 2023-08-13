@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AGNALDO1939
-- 👀 I’m interested in APRENEDER CONTINUAMENTE 
+- 👀 I’m interested in APRENDER CONTINUAMENTE 
 - 🌱 I’m currently learning ... PYTHON 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...+5561981836536 wats app
