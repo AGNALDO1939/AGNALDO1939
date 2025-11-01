@@ -1,5 +1,1 @@
 - Olá atualmente em transição de carreira  @AGNALDO1939
--Me interesso por várias tecnologias ainda não me decidi por uma em específico, parece que programação é um assunto infinito que nunca termina isso me deixa feliz.
-- aprendendo(atualmente) kotlin,C,Dart e o que mais  puder aprender pelo caminho!! 
--Aberto a colaboração 
-- pode me encontrar neste telefone +5561981836536, se possível use o wats app 61981836536.
